@@ -5,7 +5,7 @@ Olá! eu me chamo Carlos Eduardo 👋
 
 📩 Contate-me: @crls.silvaprincipal@gmail.com
 
-😊 Pronomes: ele/dele
+
 
 
 <div align="center">
