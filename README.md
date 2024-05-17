@@ -3,7 +3,7 @@ Olá! eu me chamo Carlos Eduardo 👋
 
 👨‍🎓 Cursando faculdade de Desenvolvimento de Sistemas na FATEC/Taquaritinga-sp
 
-📩 Contate-me: @crls.silvaprincipal@gmail.com
+📩 Contate-me: @carloskadu.silva123@gmail.com 
 
 
 
